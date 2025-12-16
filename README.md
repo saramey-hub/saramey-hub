@@ -1,6 +1,6 @@
 ## Hi, im Sara !
 
-🧠 Computer Science student at CESI </br>
+🧠 Computer Science student at CESI Rouen </br>
 💻 I create apps, website and love to give myself some cybersecurity lessons ! </br>
 🗽 Dreamin to work in Toronto, NYC or San Francissco </br>
 
